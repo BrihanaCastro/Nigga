@@ -8,6 +8,9 @@ Antes practicaba tocho pero eran muchas lesiones asi que me sali, tiembien por h
 Me gsutan los deportes pero soy muy floja para realizarlos
 Tengo amigos con un IQ de 117 pero por un tropezon bajo a 116
 
+Abilidades:
+La cocina 
+
 Mi casa me gustaria de dos pisos, no muy grandre, que este en Monterrey
 Que sea minimalista, no mucho, y que este rodeada de naturaleza 
 
