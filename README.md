@@ -5,7 +5,7 @@ Mi nombre es Brihana Castro
 Me gusta dormir todo el dia, suelo procastinar bastante seguido pero me va bien 
 Me encantan los elotes pero me da flojera ir a comprarlo
 Antes practicaba tocho pero eran muchas lesiones asi que me sali, tiembien por hueva
-Me gsutan los deportes pero soy muy floja para realizarlos
+Me gustan los deportes pero soy muy floja para realizarlos
 Tengo amigos con un IQ de 117 pero por un tropezon bajo a 116
 
 Abilidades:
